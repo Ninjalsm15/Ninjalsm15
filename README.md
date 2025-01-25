@@ -7,7 +7,7 @@
 - Em nada por enquanto.
 - 📫 How to reach me ...
 -  É possível por meio do  meu e-mail: ninjalsm15@gmail.com,
--  por meu Facebook: Rei Lai,
+-  por meu Facebook: Rei Lai.
 - 😄 Pronouns: ... Ele, eu sou do gênero masculino.
 - ⚡ Fun fact: ... Eu sou uma pessoa que adora assistir animes.
 
